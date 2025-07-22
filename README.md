@@ -20,4 +20,4 @@ AWS Cloud Security
 ISO 27001 (in progress)
 CompTIA Security+ (in progress)
 
-📫 *Let’s connect*: [LinkedIn](https://linkedin.com/in/victor-un)
+📫 *Let’s connect*: [LinkedIn](www.linkedin.com/in/victor-unegbu-8405bb193)
